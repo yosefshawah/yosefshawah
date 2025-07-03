@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @yosefshawah.
 - 👀 I’m interested in math and coding.
-
 - 📫 How to reach me, yosefshawah643@gmail.com.
 
 
