@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yosefshawah.
 - 👀 I’m interested in math and coding.
-- 🌱 I’m currently learning Computer science at BGU.
+
 - 📫 How to reach me, yosefshawah643@gmail.com.
 
 
